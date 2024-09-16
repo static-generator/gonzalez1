@@ -2,7 +2,7 @@
 ## Pete Vonch Angelo C. Ababan
 >Salvacion Poblacion, Tinambac, Camarines Sur
 >> April 25, 2010
-# Hombdy
+# Homebdy
  Yeah, slimedemidemislime Sabi mo, "Just come over" (ya already know)
 I said, "Just give me a moment, " oh-oh
 'Ga't pagkikita natin napapadalas
